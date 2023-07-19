@@ -1,3 +1,11 @@
 # _cuarto_deber_![OPPOF19](https://github.com/AndersonDavidJaime/_cuarto_deber_/assets/124792573/a3962121-9227-40dc-8d4c-36ba40f40f54)
 ![inicio](https://github.com/AndersonDavidJaime/_cuarto_deber_/assets/124792573/215caa71-6600-415c-96e2-ab9c555ce60a)
 ![OPPOF19 SEGUNDA PARTE](https://github.com/AndersonDavidJaime/_cuarto_deber_/assets/124792573/341e5c4b-812b-469b-abaf-4eeb145ed528)
+![iphone 10](https://github.com/AndersonDavidJaime/_cuarto_deber_/assets/124792573/f36673b6-76aa-48b3-9cc7-c74e0ab57cc4)
+![iphone 9](https://github.com/AndersonDavidJaime/_cuarto_deber_/assets/124792573/6e8a502d-55c0-4bce-81c9-d854e7e4980f)
+
+![HUAWEI](https://github.com/AndersonDavidJaime/_cuarto_deber_/assets/124792573/222bf085-9206-4db8-b775-8582a3ba11e8)
+![HP PAVILON](https://github.com/AndersonDavidJaime/_cuarto_deber_/assets/124792573/f0b2ee39-4ce5-4dee-8ca4-436cd57f827e)
+![Galaxy book](https://github.com/AndersonDavidJaime/_cuarto_deber_/assets/124792573/9d06db40-25eb-455f-8e9d-83330d7bd5a9)
+![MacBook](https://github.com/AndersonDavidJaime/_cuarto_deber_/assets/124792573/fb4bcbe5-0630-4220-95d6-9ce0ac002158)
+![Samsumg 9](https://github.com/AndersonDavidJaime/_cuarto_deber_/assets/124792573/d4a96458-ef63-4bec-a741-1c7b5be206a3)
